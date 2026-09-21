@@ -1,1 +1,1 @@
-ngaku seorang programmer Yatanya? ngambil karya orang 🙂‍↕️
+ngaku seorang programmer Nyatanya? ngambil karya orang 🙂‍↕️
